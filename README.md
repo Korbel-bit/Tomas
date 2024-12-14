@@ -1,1 +1,1 @@
-# Tomas
+# Tomáš korbeľ 
